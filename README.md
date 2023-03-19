@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **medoelsayad229@gmail.com**
 
-- 📄 Know about my experiences [https://unruffled-elion-f964c3.netlify.app/](https://unruffled-elion-f964c3.netlify.app/)
+- 📄 Know about my experiences [https://magdy-elsayyad.netlify.app]([https://unruffled-elion-f964c3.netlify.app/](https://magdy-elsayyad.netlify.app))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
